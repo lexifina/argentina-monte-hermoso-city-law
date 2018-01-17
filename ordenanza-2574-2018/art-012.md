@@ -1,0 +1,1 @@
+ARTICULO 12º): Los sucesores a título singular y/o universal del contribuyente, responden solidariamente con éste último y demás responsables, por los gravámenes y accesorios que afectan a los bienes o actividades transmitidas.-

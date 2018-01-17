@@ -1,0 +1,2 @@
+ARTICULO 14° BIS):Entiéndase por “Contribuyente Regular”, a todo aquel que, aún registrando deudas o saldos impagos al día de la emisión de cualquier tasa, derecho, contribución u otra obligación que, en materia tributaria, disponga la Municipalidad de Monte Hermoso, este adherido a regímenes de regularización o pagos establecidos por este municipio sobre un imponible especifico, a fin de alcanzar la categoría de “Buen Contribuyente”.
+TITULO III - DEL DOMICILIO FISCAL.
