@@ -1,0 +1,2 @@
+ARTICULO 209º): Cuando se otorguen facilidades de pago de los Derechos de Construcción, se realizarán inspecciones si los pagos por este concepto no estuvieran al día. La inspección final de la obra, total o parcial, será otorgada únicamente al cancelarse totalmente los saldos adeudados.
+Las facilidades de pago aludidas precedentemente podrán ser de una cantidad máxima de cinco (5) cuotas, siempre y cuando estos planes no excedan el ejercicio fiscal en curso, en cuyo caso, la cantidad máxima de cuotas será equivalente a la cantidad que reste para su finalización.

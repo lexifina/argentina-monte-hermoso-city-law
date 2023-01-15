@@ -1,0 +1,10 @@
+ARTICULO 295º): Están exentos del pago de la presente Tasa:
+a) Los estados Nacional, Provincial y Municipal, siempre que no desarrollen actividades comerciales, industriales o prestación de servicios públicos; excepto las empresas y/o entidades cuya forma societaria sea sociedad anónima con participación estatal mayoritaria, que desarrollen actividades en el Partido de Monte Hermoso y su sede principal se encuentre ubicada en el ámbito de este Distrito.
+b) Los profesionales con título universitario, en el ejercicio de su profesión liberal y no organizado en forma de empresa.
+c) La venta y distribución de diarios y revistas en la vía pública.
+d) Las cooperativas de obras y servicios públicos, por sus actividades específicas, salvo cambio regulatorio vigente.
+e) Las cooperativas de trabajo.
+f) Los establecimientos educacionales privados, incorporados a los planes de enseñanza oficial, y reconocidos como tales por las respectivas jurisdicciones.
+g) Los buhoneros, fotógrafos y floristas sin local propio y similar en tanto se encuentren registrados como tales en el Municipio y abonen la tasa correspondiente.-
+La perfección del hecho imponible dentro del perímetro comprendido por la Avenida Faro Recalada y Avenida Juan Domingo Perón, denominado “Peatonal Dorrego” se encuentra exenta del pago del presente gravamen.-
+II - INGRESO A FARO RECALADA Y MUSEOS MUNICIPALES

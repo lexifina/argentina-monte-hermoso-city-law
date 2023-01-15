@@ -1,0 +1,4 @@
+ARTICULO 302º): Para la liquidación de la Tasa del presente Título, se podrá discriminar los inmuebles urbanos edificados con medidores de energía eléctrica instalada en el Partido de Monte Hermoso, de acuerdo a los siguientes radios:
+Radio 1: conformado por el área comprendida por la Avenida Alfonsín hacia el Este, hasta calle Tronador y Huemul incluyendo el “Loteo del Este”.
+Radio 2: conformado por el área comprendida por la Avenida Alfonsín hacia el Oeste, hasta Barrio “Las Dunas” inclusive. A los fines de liquidar la Tasa a este radio, se sumarán los usuarios del servicio eléctrico del Balneario Sauce Grande.-
+DE LOS CONTRIBUYENTES Y/O RESPONSABLES

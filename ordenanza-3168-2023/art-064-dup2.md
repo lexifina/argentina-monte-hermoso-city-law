@@ -1,0 +1,1 @@
+ARTICULO 64º): Vencido el periodo de prueba establecido en el Artículo 62º, o desde la interposición del recurso de revocatoria, la Autoridad Municipal dictará resolución fundada dentro de los cuarenta y cinco (45) días, la cual será notificada al recurrente.-

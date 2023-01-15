@@ -1,0 +1,1 @@
+ARTICULO 152º): Para determinar los distintos conceptos que integran o no el monto imponible, se estará de acuerdo a lo dispuesto por la Ley 10.397 y sus modificaciones del Impuesto sobre los Ingresos Brutos.-

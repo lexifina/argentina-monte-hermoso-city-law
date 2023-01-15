@@ -1,0 +1,2 @@
+ARTICULO 139º): La falta de presentación de Declaración Jurada correspondiente a la Tasa por Inspección de Seguridad e Higiene, Derecho de Publicidad y Propaganda y Fondo Especial de Turismo y Cultura conforma un indicio de derecho sobre la falta de cumplimiento de algunas condiciones referidas al tiempo de ejercicio de la actividad económica, circunstancia que constituye causal de suspensión de la habilitación.-
+DE LA BASE IMPONIBLE

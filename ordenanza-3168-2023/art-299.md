@@ -1,0 +1,2 @@
+ARTICULO 299º): La Tasa a la que hace referencia el presente Título, comprende la prestación del servicio de alumbrado público común o especial.
+DE LA BASE IMPONIBLE

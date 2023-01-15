@@ -1,0 +1,1 @@
+ARTICULO 98º): Monto de referencia tributario valor tierra, para construido que se desgrava en función de las variaciones por zona, comenzando en zona A1 en mas (+) 250 puntos.-

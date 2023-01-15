@@ -1,0 +1,1 @@
+ARTICULO 271º): Dispóngase que a los efectos de determinar el monto imponible de la Tasa por Servicios Sanitarios correspondiente al Ejercicio 2.022, se aplicará un factor de actualización tributaria que establezca el Artículo 82° de la Ordenanza Impositiva.-

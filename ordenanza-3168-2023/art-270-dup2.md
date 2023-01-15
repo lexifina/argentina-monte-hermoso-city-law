@@ -1,0 +1,1 @@
+ARTICULO 270º): Establézcase como parte de la determinación del monto a tributar en concepto de Tasa por Servicios Sanitarios del ejercicio 2.021, la aplicación de un coeficiente específico, sintético, tributario y sistémico, el cual, será definido por la Ordenanza Impositiva en su Artículo 81°.-

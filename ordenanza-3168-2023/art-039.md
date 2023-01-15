@@ -1,0 +1,4 @@
+ARTICULO 39º): El pago de los gravámenes, recargos, multas e intereses deberá efectuarse en efectivo o alternativamente mediante cheque o giro a la Orden de la Municipalidad de Monte Hermoso, en la Tesorería Municipal o en las oficinas, bancos u otros medios que se autoricen al efecto.
+Cuando el pago se efectúe con algunos de los documentos mencionados, la obligación no se considerará extinguida en el caso de que por cualquier evento no se hiciera efectivo el mismo.
+Comprende asimismo en las atribuciones propias de la Municipalidad, la no admisión de cheques sobre distintas plazas o cuando puedan suscitarse dudas respecto a la solvencia del librador.
+Por otro lado, el pago podrá ser realizado mediante Débito Automático o cualquier otro medio electrónico de pago debidamente autorizado por el Departamento Ejecutivo.-

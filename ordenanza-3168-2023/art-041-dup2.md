@@ -1,0 +1,2 @@
+ARTICULO 41º): Cuando el pago se efectúe con algunos de los valores mencionados en el Artículo 39°), se dejará constancia de esta situación en los recibos de pago entregados por este Municipio.
+Los contribuyentes y responsables no podrán oponer como defensa, ante el incumplimiento de sus obligaciones, la falta de recepción del recibo o boleta de pago correspondiente. Esto es así, toda vez que está a su cargo abonar las tasas o derechos en la Tesorería Municipal o entidades financieras habilitadas al efecto en las fechas de vencimiento estipuladas.-

@@ -1,0 +1,1 @@
+ARTICULO 268º): Los montos imponibles por las respectivas categorías fiscales se multiplicarán por un factor tributario para la determinación del monto a abonar, determinado en la Ordenanza Impositiva en su Artículo 79°.-

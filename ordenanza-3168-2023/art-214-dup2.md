@@ -1,0 +1,2 @@
+ARTICULO 214º): Cuando se solicita alguno de los servicios comprendidos en este Título, se deberá constatar previamente que el inmueble no registra deuda por tasas y/o derechos municipales hasta el mes inmediato anterior al de la solicitud.
+Se podrá percibir anticipos correspondientes al monto a tributar en concepto de Derecho de Construcción, el cual quedará perfeccionado al momento de solicitarse la autorización.-

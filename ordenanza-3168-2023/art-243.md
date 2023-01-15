@@ -1,0 +1,5 @@
+ARTICULO 243º): La base imponible estará constituida por los siguientes elementos:
+a) Guías, certificados, permisos para marcar y señalar y permisos de remisión a ferias por cabeza.
+b) Certificados y guías de cuero: por cuero.
+c) Inscripción de boletos de marcas y señales, nuevas o renovadas, toma de razón de su transferencia, duplicado, rectificaciones, cambios adicionales: tasa fija.-
+DE LOS CONTRIBUYENTES Y RESPONSABLES

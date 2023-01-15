@@ -1,0 +1,1 @@
+ARTICULO 96º): Para el caso de inmuebles categorizados como “local comercial”, el monto a tributar se incrementará en función de la tabla especificada en la Ordenanza Impositiva en su Artículo 7°.-

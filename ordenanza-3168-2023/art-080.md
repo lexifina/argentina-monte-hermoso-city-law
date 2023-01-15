@@ -1,0 +1,1 @@
+ARTICULO 80º): El Departamento Ejecutivo estará facultado a proceder a la firma de convenios de retención de pagos con aquellos proveedores que se constituyan al mismo tiempo como contribuyentes de tasas, derechos y/u otras gravámenes que establezca el Municipio y que en cuyo caso registren saldos pendientes de cancelación de tales obligaciones de carácter tributario.-

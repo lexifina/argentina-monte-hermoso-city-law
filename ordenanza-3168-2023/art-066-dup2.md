@@ -1,0 +1,2 @@
+ARTICULO 66º): El plazo para resolver el recurso jerárquico será de treinta (30) días, a contar desde la recepción de las actuaciones por la autoridad competente.
+La resolución denegatoria que recaiga en el recurso jerárquico que el recurso de revocatoria lleva implícito en subsidio, será definitiva y agotará la vía administrativa.-

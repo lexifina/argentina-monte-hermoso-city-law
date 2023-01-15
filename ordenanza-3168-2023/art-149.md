@@ -1,0 +1,4 @@
+ARTICULO 149º): Los Contribuyentes no inscriptos en los registros municipales, deberán abonar conjuntamente con los gravámenes comprendidos en el presente Título, los correspondientes a la Tasa por Inspección de Seguridad e Higiene, Derecho de Publicidad y Propaganda y Fondo Especial de Turismo y Cultura, en el tiempo en que hubieren estado funcionando sin la correspondiente habilitación municipal.-
+Título IV
+TASA POR INSPECCIÓN DE SEGURIDAD E HIGIENE
+DEL HECHO IMPONIBLE

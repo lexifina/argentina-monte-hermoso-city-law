@@ -1,0 +1,3 @@
+ARTICULO 56º): En los casos en que se apliquen multas por omisión o por defraudación, corresponderá la aplicación por parte del Fisco de un interés sobre el tributo no ingresado en término o defraudado, con más la actualización respectiva, por el período que media entre las fechas de vencimiento original y la del pago efectivo de la obligación, computándose como mes entero las fracciones de mes.-
+Título VIII
+DE LOS RECURSOS

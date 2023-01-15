@@ -1,0 +1,4 @@
+ARTICULO 63º): No habiéndose interpuesto el recurso de revocatoria, quedará firme la resolución recurrida.
+Sin perjuicio de ello, si se tratare de una resolución determinativa, si el quantum del tributo resultare inferior al que correspondiere de acuerdo al principio de realidad económica de los hechos o actos imponibles, subsiste la responsabilidad del contribuyente por las diferencias a favor de la Comuna.
+En caso de que el contribuyente/obligado haya presentado el recurso fuera del plazo previsto en el Artículo 57º de la presente Ordenanza, se atenderá a lo establecido en el Artículo 74º, segundo párrafo de la Ordenanza General Nº 267 a los efectos de dar respuesta al contribuyente/obligado.
+La interposición del recurso de revocatoria llevará implícita la promoción del recurso jerárquico en subsidio, el cuál será resuelto por el Departamento Ejecutivo.-

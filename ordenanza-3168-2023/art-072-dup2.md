@@ -1,0 +1,1 @@
+ARTICULO 72º): En todos los casos el término de la prescripción se interrumpirá por el reconocimiento de la obligación fiscal principal y/o de sus accesorios, por parte del contribuyente y/o responsable y/o por la promoción del juicio de apremio y/o por los actos administrativos que la Municipalidad ejecutare en procuración del pago.-

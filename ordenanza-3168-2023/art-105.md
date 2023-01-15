@@ -1,0 +1,1 @@
+ARTICULO 105º): Para el caso de los departamentos, se aplicará un coeficiente equivalente a 1,4. Se mantienen las desgravaciones previstas, contemplándose el régimen asociado a la habitualidad del sujeto pasivo mencionado en el Artículo 94° de la presente Ordenanza.-

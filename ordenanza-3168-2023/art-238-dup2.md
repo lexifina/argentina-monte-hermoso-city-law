@@ -1,0 +1,3 @@
+ARTICULO 238º): El vencimiento para el pago de la Patente, establecido en el presente Título, operará en las fechas que anualmente determine la Ordenanza Impositiva.
+Los vehículos nuevos que soliciten su inscripción con posterioridad al 30 de Junio de cada año, abonarán el cincuenta por ciento (50%) de la patente que le corresponda.-
+DISPOSICIONES COMPLEMENTARIAS

@@ -1,0 +1,9 @@
+ARTICULO 74º): Las notificaciones se efectuarán:
+Personalmente, debiendo en este caso labrarse acta de la diligencia practicada en la que se especificará el lugar, día y hora en que se efectúe y que será firmada por el agente notificador y por el interesado si accediere, a quien se dará copia autenticada por el notificador;
+Por cédula;
+Por telegrama colacionado;
+Por carta documento;
+Por carta certificada con aviso de retorno;
+Por edictos que se publicarán por un día en un periódico del Partido de Monte Hermoso y en el Boletín Oficial Municipal;
+Por correo electrónico o domicilio fiscal electrónico.
+Si no se pudiere practicar en ninguna de las formas anteriormente señaladas, se considerará para el contribuyente encontrarse en un todo de acuerdo a lo establecido en el Artículo 17º de la presente Ordenanza.-

@@ -1,0 +1,1 @@
+ARTICULO 284º): Para los hoteles, la unidad de medida se determinará según lo disponga la Ordenanza Impositiva.-

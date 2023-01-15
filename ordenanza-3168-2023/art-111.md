@@ -1,0 +1,1 @@
+ARTICULO 111º): Establézcase como parte de la determinación del monto imponible de la Tasa por Servicios Urbanos correspondiente al ejercicio 2021, la aplicación de un coeficiente específico, sintético, tributario y sistémico, el cual, será definido por la Ordenanza Impositiva en su Artículo 11°.-

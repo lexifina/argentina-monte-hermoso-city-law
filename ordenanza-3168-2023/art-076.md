@@ -1,0 +1,1 @@
+ARTICULO 76º): Todos los términos de días establecidos en la presente Ordenanza, salvo indicación de contrario, se refiere a días hábiles administrativos para esta Comuna.-

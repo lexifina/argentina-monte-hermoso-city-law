@@ -1,0 +1,1 @@
+ARTICULO 173º): A los medios de propaganda que no están expresamente determinados en la presente Ordenanza, el Departamento Ejecutivo fijará el impuesto que le corresponda por analogía.-

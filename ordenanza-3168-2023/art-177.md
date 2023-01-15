@@ -1,0 +1,2 @@
+ARTICULO 177º): La base imponible está constituida por cada res o unidad de medida respecto al objeto del hecho imponible del gravamen, sobre los que se aplicarán las tasas que disponga la Ordenanza Impositiva anual.-
+DE LOS CONTRIBUYENTES Y RESPONSABLES

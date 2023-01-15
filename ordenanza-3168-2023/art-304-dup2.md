@@ -1,0 +1,2 @@
+ARTICULO 304º): El importe correspondiente a la Tasa por Alumbrado Público para el caso de los terrenos baldíos se liquidará en el mismo recibo destinado al pago de la Tasa por Servicios Urbanos.-
+DISPOSICIONES COMPLEMENTARIAS

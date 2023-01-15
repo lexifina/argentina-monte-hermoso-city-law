@@ -1,0 +1,4 @@
+ARTICULO 201°): Cuando de la operación de mensura y/o fraccionamiento resulten fracciones que por sus características no pueden subsistir en forma independiente, no se computarán en el cálculo de las parcelas resultantes. Igual criterio se empleará con excedentes y sobrantes.-
+Título IX
+DERECHO DE CONSTRUCCIÓN
+DEL HECHO IMPONIBLE

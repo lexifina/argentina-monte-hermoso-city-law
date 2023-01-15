@@ -1,0 +1,2 @@
+ARTICULO 104º): Para el caso de los inmuebles categorizados como “locales comerciales” se aplicará un coeficiente equivalente a 1,4.
+Para aquellos sujetos pasivos que se constituyan como propietarios de un único local con un valor básico superior a 400 puntos básicos, se adicionará una alícuota de 3,5% cada cien puntos básicos, estableciéndose para el cálculo resultante un piso del 20%.-

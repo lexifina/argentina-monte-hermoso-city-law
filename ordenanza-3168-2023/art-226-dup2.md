@@ -1,0 +1,2 @@
+ARTICULO 226º): La base imponible para determinar los derechos del presente Título estará constituida, según corresponda, por las siguientes unidades de medida: tonelada, metro cuadrado o metro cúbico.-
+DE LOS RESPONSABLES

@@ -1,0 +1,1 @@
+ARTICULO 69º): La prescripción se regirá conforme a lo dispuesto en los Artículos 278º y 278º bis del Decreto-Ley 6.769/58 (texto según ley 12.076).-

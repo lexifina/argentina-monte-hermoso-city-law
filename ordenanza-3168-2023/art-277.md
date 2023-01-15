@@ -1,0 +1,1 @@
+ARTICULO 277º): Facúltese al Departamento Ejecutivo a aplicar un coeficiente incremental por zona y/o creación de zona del 10%. En tanto, para los casos de re categorización, se contemplará una desgravación tal que el incremento sobre el monto tributado anteriormente no puede ser superior al 10%.-

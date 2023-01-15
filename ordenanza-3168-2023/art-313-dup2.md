@@ -1,0 +1,2 @@
+ARTICULO 313º): Serán considerados contribuyentes y/o responsables de este Derecho, todos aquellos que ocupen y /o utilicen bienes municipales.-
+DE LA DETERMINACIÓN Y LIQUIDACIÓN

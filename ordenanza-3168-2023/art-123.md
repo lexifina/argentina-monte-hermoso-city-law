@@ -1,0 +1,1 @@
+ARTICULO 123º): La Oficina de Catastro podrá empadronar oficios o modificaciones de los mismos en base a los respectivos expedientes de construcción. La Oficina de Habilitación comunicará a la Oficina de Catastro la fecha de habilitación de negocios o industrias que se instalen.-

@@ -1,0 +1,2 @@
+ARTICULO 216º): Se abonarán los derechos que, para tales efectos, se establezcan en las respectivas licitaciones o decretos que autoricen la explotación de sitios, instalaciones o implementos municipales y por las concesiones y/o permisos que se otorguen y cuya administración recaiga en la Municipalidad de Monte Hermoso.-
+DE LA BASE IMPONIBLE Y LA FORMA DE PAGO

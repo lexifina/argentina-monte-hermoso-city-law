@@ -1,0 +1,1 @@
+ARTICULO 29º): Cuando se requiere la declaración como base de determinación, y el contribuyente o responsable no hubiere presentado la declaración jurada; o la misma resultare inexacta, por falsedad, error en los datos, o por errónea aplicación de las normas tributarias; el órgano competente estimará de oficio la obligación tributaria, sobre la base cierta o presunta.-

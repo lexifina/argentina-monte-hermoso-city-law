@@ -1,0 +1,2 @@
+ARTICULO 251º): Por la prestación de los servicios de conservación, mejorado de calles y caminos rurales municipales, se abonarán los importes establecidos en la Ordenanza Impositiva. Se abonarán por todos los inmuebles rurales ubicados en el Partido que se preste el servicio directamente e indirectamente, total, parcial, periódicamente o no y en forma potencial o efectiva, posean caminos rurales, provinciales o nacionales.-
+DE LA BASE IMPONIBLE

@@ -1,0 +1,1 @@
+ARTICULO 90º): La base imponible de la Tasa a la que se refiere el presente Título estará constituida por el valor básico de cada inmueble y las unidades funcionales que componen cada una de las partidas inmobiliarias del Partido de Monte Hermoso.-

@@ -1,0 +1,2 @@
+ARTICULO 242º): Por los servicios de expedición, visado o archivo de guías y certificados en operaciones de semovientes y cueros, los permisos para marcar y señalar; el permiso de remisión a feria; la inscripción de boletos de marcas y señales, ya sean nuevas o renovadas; como así también la toma de razón de sus transferencias, duplicados, rectificaciones, cambios o adicionales, se abonará la tasa que, para tales efectos, establezca la Ordenanza Impositiva.-
+DE LA BASE IMPONIBLE

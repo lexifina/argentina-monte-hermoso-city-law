@@ -1,0 +1,1 @@
+ARTICULO 174º): Cuando los avisadores no retiren el aviso a su vencimiento, quedarán obligados a pagar nuevamente el derecho correspondiente.-

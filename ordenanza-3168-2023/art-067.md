@@ -1,0 +1,1 @@
+ARTICULO 67º): En los casos de repetición de tributos municipales y sus accesorios, cuando hubiere mediado pago indebido o las devoluciones por pagos efectuados como consecuencia de determinaciones tributarias impugnadas en términos, serán de aplicación las normas contenidas en la Ordenanza Impositiva Municipal.-

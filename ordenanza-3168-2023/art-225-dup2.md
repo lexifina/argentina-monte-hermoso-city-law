@@ -1,0 +1,2 @@
+ARTICULO 225º): Comprende los derechos a abonar por las explotaciones del suelo o subsuelo que se concreten exclusivamente en jurisdicción municipal.-
+DE LA BASE IMPONIBLE

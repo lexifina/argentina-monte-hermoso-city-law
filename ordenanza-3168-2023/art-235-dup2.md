@@ -1,0 +1,2 @@
+ARTICULO 235º): Por los vehículos radicados en el Partido de Monte Hermoso que utilicen la vía pública y no se encuentren comprendidos en el Impuesto Provincial a los Automotores o en el vigente correspondiente a otras jurisdicciones, se abonarán los importes que al efecto establezca la Ordenanza Impositiva.-
+DE LA BASE IMPONIBLE

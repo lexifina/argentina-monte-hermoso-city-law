@@ -1,0 +1,2 @@
+ARTICULO 267º): Para el caso de vivienda única, al valor del año base 2.016, al resultado de la fórmula establecida en la Ordenanza Impositiva, se le adicionará porcentajes de incrementos en función de los valores básicos según tabla que se detalla Artículo 78° de la Ordenanza Impositiva.
+Para el resto de los inmuebles sobre la fórmula del año base, se multiplicará por 1.4, salvo para el inciso f del Artículo 265° de la presente Ordenanza que se deberá multiplicar por 1,6.-

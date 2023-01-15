@@ -1,0 +1,3 @@
+ARTICULO 5º): Para los casos en que las situaciones planteadas no se puedan resolver por las disposiciones pertinentes de esta Ordenanza, serán de aplicación supletoria las disposiciones análogas que rigen la tributación municipal, provincial, nacional y subsidiariamente los principios generales del derecho.-
+Título II
+DE LOS SUJETOS PASIVOS

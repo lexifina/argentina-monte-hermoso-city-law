@@ -1,0 +1,1 @@
+ARTICULO 43º): El pago de las obligaciones posteriores no supone la liberación de los anteriores, aun cuando ninguna salvedad se hiciera en los recibos respectivos. La obligación de pagar los recargos subsiste, no obstante la falta de reservas por parte de la Municipalidad al recibir el pago de la deuda principal.-

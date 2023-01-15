@@ -1,0 +1,1 @@
+ARTICULO 147º): La perfección del hecho imponible dentro del perímetro comprendido por la Avenida Faro Recalada y Avenida Juan Domingo Perón, denominado “Peatonal Dorrego” se encuentra exento del pago del presente gravamen.-

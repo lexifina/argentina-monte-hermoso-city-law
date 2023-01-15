@@ -1,0 +1,2 @@
+ARTICULO 115º): Los sucesores a título singular o universal de cada contribuyente, responderán por las deudas que registre la partida correspondiente, aun por las anteriores a la fecha de escrituración.-
+DEL PAGO

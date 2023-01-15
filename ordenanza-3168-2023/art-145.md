@@ -1,0 +1,1 @@
+ARTICULO 145º): Cuando la transferencia aludida en el artículo anterior no haya sido realizada conforme a la Ley Nº 11.867, la Municipalidad no reconocerá cambio en la titularidad y seguirá siendo responsable, a todos los efectos, quien goce de la habilitación y solidariamente el presente cesionario.-

@@ -1,0 +1,3 @@
+ARTICULO 172º): El pago de los gravámenes a que se refiere este Título, deberá efectuarse dentro del plazo establecido en la presente Ordenanza, caso contrario, serán de aplicación las disposiciones contenidas en el Titulo "Del Pago", de la parte General de la Ordenanza Fiscal.
+Los pagos que se requieran y/o intimen según los valores previstos en la Ordenanza Impositiva por haberse realizado, y/o encontrarse realizando publicidad gravada sin contar con la autorización previa, revisten el carácter de multa y bajo ningún concepto implican la aprobación municipal, ni suplen al cumplimiento del procedimiento establecido para obtener la autorización pertinente, ni lo eximen del pago del tributo que se determine.-
+DISPOSICIONES COMPLEMENTARIAS

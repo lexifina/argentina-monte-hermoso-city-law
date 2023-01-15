@@ -1,0 +1,2 @@
+ARTICULO 150º): Por los servicios de inspección destinados a preservar la salubridad, seguridad e higiene en comercios, industrias, servicios y actividades similares a tales, aun cuando se trate de servicios públicos, que se desarrollen en locales, establecimientos y oficinas propios o ajenos se abonará la Tasa que al efecto se establezca, con la sola excepción de aquellas actividades que tengan previsto otro tratamiento impositivo por esta Ordenanza.-
+DE LA BASE IMPONIBLE

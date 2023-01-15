@@ -1,0 +1,1 @@
+ARTICULO 60º): Con el recurso deberá acompañarse la prueba documental y ofrecerse todas las demás que el recurrente intentare valerse, indicando su contenido: el lugar, archivo, oficina pública y persona en cuyo poder se encuentre. Luego de la interposición del recurso no podrá ofrecerse otras pruebas, excepto por nuevos hechos acaecidos posteriormente.-

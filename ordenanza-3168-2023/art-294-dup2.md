@@ -1,0 +1,5 @@
+ARTICULO 294º): Cuando el contribuyente ejerza dos o más actividades o rubros alcanzados por distintos tratamientos, deberá segregar en sus Declaraciones Juradas el monto de los ingresos brutos correspondientes a cada uno de esas actividades. Cuando se omitiere está segregación estará sujeto a la alícuota más elevada.
+Las actividades o rubros complementarios de una actividad principal incluida financiación y ajustes por desvalorización monetaria, estarán sujetos a la alícuota que, para aquella, contemple esta Ordenanza.
+La segregación prevista en el párrafo anterior, no será de aplicación en los casos de boites, cafés concert, dancing, night clubes y establecimientos análogos, cualquiera sea la denominación utilizada, quienes deberán abonar la Tasa de acuerdo a lo establecido en la Ordenanza Impositiva.
+Se aplicará la alícuota general establecida para este gravamen, cualquier ramo, sector o actividad económica que no haya sido prevista en forma expresa en esta Ordenanza.-
+EXENCIONES

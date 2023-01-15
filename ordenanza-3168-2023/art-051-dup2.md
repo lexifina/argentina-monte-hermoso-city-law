@@ -1,0 +1,1 @@
+ARTICULO 51º): No incurrirá en infracción, ni será pasible del pago de multas y/o recargos, excepto los intereses que pudiera corresponder, quien deje de cumplir total o parcialmente su obligación tributaria y/o deber formal, tanto por error excusable del contribuyente, por fuerza mayor o disposición legal, judicial o administrativa.-

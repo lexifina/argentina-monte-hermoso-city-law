@@ -1,0 +1,1 @@
+ARTICULO 203º): Los derechos de construcción se aplicarán sobre el valor de la obra determinado por revalúo municipal (valor actualizado).-

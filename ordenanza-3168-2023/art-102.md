@@ -1,0 +1,1 @@
+ARTICULO 102º): Se aplicará un coeficiente equivalente a 1,4 para el caso de las construcciones. Aquellos sujetos pasivos que sean propietarios de vivienda podrán disponer de una desgravación sobre este incremento de hasta un 50%. El periodo desgravatorio será de 40 años.-

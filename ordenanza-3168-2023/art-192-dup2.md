@@ -1,0 +1,1 @@
+ARTICULO 192º): Sin perjuicio de las penalidades que correspondan, conforme a las disposiciones vigentes, las empresas que no cumplan sus obligaciones en los plazos establecidos, no tendrán derecho a nuevas adjudicaciones mientras no regularicen su situación, ni se les dará curso a las nuevas cuentas que se presenten de la obra cuestionada.-

@@ -1,0 +1,1 @@
+ARTICULO 200º): Se considerará desistida toda gestión que haya quedado paralizada por un período mayor de treinta (30) días corridos a contar de la fecha de notificación, por causas imputables al solicitante, debiéndose constatar en la misma la transcripción del presente artículo. El desistimiento no dará lugar a la devolución de suma alguna por este concepto.-

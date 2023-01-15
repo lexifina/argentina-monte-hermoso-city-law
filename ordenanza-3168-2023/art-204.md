@@ -1,0 +1,2 @@
+ARTICULO 204º): Para la determinación del monto a tributar en concepto de Derecho de Construcción se aplicará sobre el valor de obra el coeficiente establecido en la Ordenanza Impositiva según la zona de servicio que corresponda.
+En caso de construcciones llevadas a cabo en áreas complementarias, el porcentaje a aplicar es el que establece la Ordenanza Impositiva para la zona de servicio lindante y según el Artículo 215° de la presente Ordenanza.-

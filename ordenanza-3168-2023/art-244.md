@@ -1,0 +1,8 @@
+ARTICULO 244º): Son contribuyentes de la Tasa del presente Título:
+Certificado: vendedor.
+Guías: remitente.
+Permiso de remisión a feria: propietario.
+Permiso de marcas y señales: propietario.
+Guía de faena: el solicitante.
+Inscripción de boletos de Marcas y Señales (transferencias, duplicado, rectificaciones, etc.): los titulares.
+La Municipalidad hará de cumplimiento obligatorio a lo establecido en el párrafo siete, contralor Municipal, Capítulo I, Título I, Sección Primera, Libro II, del Código Rural de la Provincia de Buenos Aires (Ley 7618 de fecha 10 de Julio de 1970, sus reglamentaciones y sus modificatorias).-

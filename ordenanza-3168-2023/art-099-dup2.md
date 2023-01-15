@@ -1,0 +1,1 @@
+ARTICULO 99º): Para el caso de los inmuebles construidos, el coeficiente por valor tierra estará determinado por un ajuste de un 20%. Dicho porcentaje será aplicado sobre la totalidad de la ecuación tributaria.-

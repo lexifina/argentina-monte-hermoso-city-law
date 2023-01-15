@@ -1,0 +1,1 @@
+ARTICULO 155º): Son contribuyentes de la Tasa, las personas físicas, sociedades con o sin personería jurídica, sociedades de hecho y demás entes que realicen actividades gravadas o que ejerza con habitualidad actividades económicas a través de terceros que operan por cuenta y orden de los mismos.-

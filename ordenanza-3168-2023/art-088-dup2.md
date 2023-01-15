@@ -1,0 +1,5 @@
+ARTICULO 88º): Será requerimiento necesario y fundamental para acceder a la condición de beneficiario y/o titular de cualquiera de los regímenes de beneficios y desgravaciones impositivas que se encuentren contemplados en ordenanzas especiales, revestir al menos la categoría de “Contribuyente Regular”, conservando tal condición mientras dichos regímenes tengan plena vigencia o dentro de los plazos establecidos para casos específicos por la legislación municipal; en caso contrario, se dispondrá la revocación, ya sea temporal o permanente de los beneficios acordados y será objeto de las sanciones previstas en las citadas ordenanzas de acuerdo a la situación particular de cada caso.-
+PARTE ESPECIAL
+Título I
+TASA POR SERVICIOS URBANOS
+DEL HECHO IMPONIBLE

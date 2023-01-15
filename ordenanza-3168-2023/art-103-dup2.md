@@ -1,0 +1,1 @@
+ARTICULO 103º): Para el caso de vivienda única con un valor básico superior a 500 puntos básicos, se adicionará una alícuota de 3,5% cada cien puntos básicos, estableciéndose para el cálculo resultante un piso del 20%.-

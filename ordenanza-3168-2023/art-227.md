@@ -1,0 +1,1 @@
+ARTICULO 227º): Serán contribuyentes responsables del presente gravamen, los titulares y personas que realicen la extracción y/o explotación.-

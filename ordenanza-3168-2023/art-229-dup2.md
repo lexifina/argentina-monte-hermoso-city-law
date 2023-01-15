@@ -1,0 +1,2 @@
+ARTICULO 229º): Se abonarán los derechos establecidos en el presente Título por la realización de todo espectáculo público.-
+DE LA BASE IMPONIBLE

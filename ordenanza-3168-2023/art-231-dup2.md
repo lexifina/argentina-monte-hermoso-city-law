@@ -1,0 +1,4 @@
+ARTICULO 231º): Cuando los derechos sean establecidos sobre el valor de la entrada, serán abonados por los espectadores conjuntamente con el valor neto de cada entrada.
+Tratándose de entradas de favor, se abonarán en el momento de percibirlas o en el momento de hacer uso de las mismas.
+Serán responsables como agentes de retención los empresarios u organizadores, los que responderán del pago solidariamente con los primeros.-
+DEL PAGO

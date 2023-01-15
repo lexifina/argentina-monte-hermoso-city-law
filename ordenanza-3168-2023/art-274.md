@@ -1,0 +1,2 @@
+ARTICULO 274º): El contribuyente y/o responsable deberá abonar la Tasa respectiva mediante la utilización de los formularios que le serán suministrados por esta Municipalidad.
+Este formulario es el único medio de pago para el cumplimiento de las obligaciones fiscales emergentes de este Título. La Municipalidad de Monte Hermoso no tomará en cuenta ningún otro pago que se efectúe con otro tipo de boletas, salvo las correspondientes a los ajustes efectuados por el Departamento de Recaudación, que se consignará su intervención en cada boleta confeccionada para tal fin.-

@@ -1,0 +1,4 @@
+ARTICULO 215º): La unidad complementaria delimitada por el Sur con la calle San Cayetano, al Norte parcela 17y y calle Dufaur, al oeste parcela 17ab y 17x y al este por calle Dufaur, a los fines de determinar el monto a abonar en concepto de Derecho de Construcción, se aplicará el porcentaje correspondiente a la “zona de servicio C2”.-
+Título X
+DERECHO DE USOS DE PLAYAS Y RIBERAS
+DEL HECHO IMPONIBLE

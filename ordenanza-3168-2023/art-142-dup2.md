@@ -1,0 +1,4 @@
+ARTICULO 142º): Son responsables del pago de la presente Tasa, los solicitantes del servicio y/o titulares de los comercios, industrias, servicios, en forma solidaria, alcanzados por la misma y la que será satisfecha al efectuar la solicitud de habilitación:
+a) Contribuyentes nuevos: al solicitar la habilitación. La referida percepción no implica autorización legal para funcionar.
+b) Contribuyentes ya habilitados: en los supuestos previstos en el artículo anterior.
+El solicitante deberá ser propietario o poseedor del inmueble (por contrato de uso, comodato, locación, entre otros) donde pretenda llevar a cabo la habilitación.-

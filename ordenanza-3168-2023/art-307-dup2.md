@@ -1,0 +1,2 @@
+ARTICULO 307º): La base imponible del presente gravamen estará conformada por entrada o salida de una unidad transportativa en servicio.-
+DE LOS CONTRIBUYENTES

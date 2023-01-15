@@ -1,0 +1,3 @@
+ARTICULO 73º):El curso de la prescripción se suspende, por un año, y por una sola vez, mediante intimación auténtica de pago al contribuyente y/o responsable, y/o intimación que se efectuará a través de edicto que por dos (2) días se publicará en el Boletín Oficial de la Provincia de Buenos Aires y/o el Boletín Oficial Municipal.-
+Título X
+DISPOSICIONES COMPLEMENTARIAS

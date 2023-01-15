@@ -1,0 +1,4 @@
+ARTICULO 114º): Son contribuyentes de la Tasa establecida en el presente título:
+a) Los titulares de dominio de los inmuebles.
+b) Los usufructuarios.
+c) Los poseedores a título de dueño.-

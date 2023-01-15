@@ -1,0 +1,3 @@
+ARTICULO 187º): Son contribuyentes y responsables de estos gravámenes, los peticionantes o beneficiarios y destinatarios de toda actividad, acto, trámite o servicio llevado a cabo por la administración municipal.
+En los casos de transacciones inmobiliarias y/o comerciales y en la subdivisión y/o unificación de partidas, será solidariamente responsable el escribano y demás profesionales intervinientes.-
+DEL PAGO
