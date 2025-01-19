@@ -1,0 +1,14 @@
+Ordenanza Nº3215
+Ordenanza Nº 3215
+Monte Hermoso, 13/06/2023
+VISTO
+El expediente letra “M” Nº 0670/2.021 Licitación Pública Nº 04/21 “OBRA PROYECTO DESARROLLO URBANO COSTERO - PASEO PEATONAL”, en el marco del Convenio de Cooperación y Financiación para la ejecución de la citada obra, firmado con la Secretaría de Obras Públicas de la Nación, ratificado por Ordenanza N° 2.907; y
+CONSIDERANDO
+Que por decreto de fecha 30 de Marzo de 2021, se procedió a realizar el Primer Llamado a Licitación Pública N° 04/2021 “Desarrollo Urbano Costero” Paseo Peatonal, con apertura de sobres para el día 26 de Abril de 2021, decretándose desierto el llamado con fecha 06 de Julio de 2021.-
+Que oportunamente se realizó el Segundo Llamado a Licitación Pública N° 04/2021 “Desarrollo Urbano Costero” Paseo Peatonal el 8 de Julio de 2021, con apertura de sobres para el día 05 de Agosto del año 2021, procediéndose a su Preadjudicación a favor de la Empresa Altote S.A;
+Que se elevó nota dirigida al Secretario de Obras Publicas del Ministerio de Obras Publicas de la Nación, solicitando un mayor financiamiento en conformidad con la oferta realizada por la empresa Altote S.A., lo cual desembocó en la Adenda del Convenio de Cooperación y Financiamiento para la Ejecución de la Obra “Proyecto Desarrollo Urbano Costero – Paseo Peatonal – Municipalidad de Monte Hermoso. Provincia de Buenos Aires” (CONVE-2022-07512706-APN-SOP#MOP);
+Que desde la presentación de la oferta por parte de la empresa Altote S.A, en conformidad con las cláusulas del Pliego de Bases y Condiciones retira en tiempo y forma su oferta, decretándose fracasado el Segundo Llamado Licitatorio con fecha 04 de Agosto de 2022;
+Que con fecha 7 de Septiembre de 2022, se procedió a Preadjudicar por vía de la Contratación Directa conforme el procedimiento normado en la Ley Orgánica de las Municipalidades (Decreto Ley 6769/58) a la empresa Monte Hermoso SAPEM, elevándose al Señor Secretario de Obras Publicas de la Nación, Carlos Augusto Rodríguez, la solicitud de adenda por mayor financiamiento atento el estado de marras detallado Ut Supra;
+Que el 23 de Mayo del año calendario la Secretaría de Obras Públicas de la Nación y la Municipalidad de Monte Hermoso celebraron una Adenda al Convenio referido Ut Supra en el cual convinieron una ampliación del financiamiento otorgado para la ejecución de la obra por el monto de pesos cuatrocientos veintisiete millones cuarenta y siete mil doscientos noventa y uno con cuarenta y siete centavos ($427.047.291,47);
+Que de acuerdo a lo establecido en el artículo 156° inc. 5° de la Ley Orgánica de las Municipalidad resulta necesaria la autorización por parte del Honorable Concejo Deliberante, para proceder a la adjudicación correspondiente, en un todo de acuerdo a lo establecido en las Cláusulas Generales y Particulares de los Pliegos de Bases y Condiciones elaborados al respecto;
+ORDENANZA
