@@ -1,0 +1,3 @@
+ARTICULO 11º): Los responsables indicados en los artículos anteriores, quedan obligados con todos sus bienes y solidariamente con el contribuyente, al pago de los gravámenes, salvo que demuestre que el mismo los haya colocado en la imposibilidad de cumplir correctamente con su obligación o en caso de fuerza mayor debidamente comprobada.
+Cuando los responsables mencionados tengan en su poder o administren fondos de los contribuyentes, deberán asegurar el pago de los gravámenes y sus accesorios con dicho Fondo.
+Igual responsabilidad corresponde, sin perjuicio de las funciones que establece esta Ordenanza Fiscal, a todos aquellos que intencionalmente, facilitaren u ocasionaren el incumplimiento de la obligación tributaria del contribuyente o demás responsables.-
