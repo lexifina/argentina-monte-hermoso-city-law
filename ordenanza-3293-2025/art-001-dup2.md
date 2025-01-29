@@ -1,0 +1,1 @@
+ARTICULO 1°: Otorgase la extensión del plazo de la “Explotación del rubro Unidad Fiscal Parador Bajada Río Negro entre calles Islas Malvinas y Río Salado”, Licitación Pública N° 02/18; obrante en expediente letra “M” Nº 0915/18, por el término de dieciocho meses (18), a favor de la Empresa PEHUNO S.A., CUIT N° 30-71586135-2, por los motivos expuestos en el exordio.-
