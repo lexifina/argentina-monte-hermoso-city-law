@@ -1,0 +1,14 @@
+Ordenanza Nº3339
+Ordenanza Nº 3339
+Monte Hermoso, 26/06/2024
+VISTO
+La necesaria actualización del estado catastral y de situación parcelaria del Partido de Monte Hermoso; y
+CONSIDERANDO
+Que resulta fundamental el diseño y la puesta en marcha de una normativa que reglamente la creación de un régimen especial destinado a los contribuyentes que, en el ámbito del Partido de Monte Hermoso, hayan dado inicio a obras constructivas sin la intervención de profesional competente ni la correspondiente autorización municipal;
+Que conforme al principio de equidad, sobre el que se fundamenta el sistema tributario local, esta administración municipal ha decidido impulsar distintas acciones que tengan por objeto una actualización constante del cuadro de situación parcelaria y catastral del Partido de Monte Hermoso, de manera tal de evitar que se susciten una serie de distorsiones que afecten la base imponible y otros aspectos tributarios que inciden en la determinación de los gravámenes municipales;
+Que desde principios de año, el Municipio viene llevando a cabo un relevamiento urbanístico de carácter integral y general de Monte Hermoso, de forma de tal de procurar la obtención de la información necesaria para diseñar un diagnóstico descriptivo del estado de situación de las edificaciones ya existentes;
+Que con la implementación de este operativo se logrará la actualización de las edificaciones existentes en Monte Hermoso y la medida en que estas construcciones se ajustan a las disposiciones y requerimientos legales exigidos por la normativa pertinente;
+Que las sanciones previstas por la legislación no tienen solo por objeto establecer una cierta penalidad sobre comportamientos que impliquen contravenciones a las disposiciones legislativas en materia constructiva sino también proveer un esquema de incentivos que contribuyan a promover las decisiones y la conducta de los contribuyentes acordes al bienestar común;
+Que en muchos de los casos, factores que tienen que ver con aspectos coyunturales de la macroeconomía, interponen a determinados contribuyentes serios obstáculos para hacer frente, en tiempo y forma, al pago de las obligaciones sustantivas que derivan del denominado Derecho de Construcción, aun en circunstancias en que se haya procedido a declarar ante la Autoridad Municipal la realización de las obras constructivas, de mejoras y/o de refacciones edilicias;
+Que esta administración municipal ha instrumentado durante el presente Ejercicio Fiscal un régimen de similares características que se encuentran en vías de culminar su periodo de vigencia, estimando necesario por las razones expuestas dar impulso a un nuevo esquema con las mismas facilidades pero en condiciones distintas a estas experiencias anteriores, ya que por principio de equidad, no pueden resultar idénticas a las percibidas por aquellos que han decidido adherir en las fases anteriores;
+ORDENANZA
