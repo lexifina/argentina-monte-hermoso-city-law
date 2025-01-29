@@ -1,0 +1,3 @@
+ARTICULO 22º BIS): Se establece un régimen de desgravación de hasta el 50% del monto a tributar en concepto de Tasa por Habilitación de Comercios e Industrias para aquellos contribuyentes que realicen acciones tendientes a poner en valor la fachada de su local en donde tendrá lugar el desarrollo de su actividad y/o procedan a la apertura de negocios comprendidos en un esquema de franquicias nacionales o internacionales. Los alcances e implicancias de este esquema desgravatorio serán contemplados en la reglamentación por parte del Departamento Ejecutivo.-
+Capítulo IV
+TASA POR INSPECCIÓN DE SEGURIDAD E HIGIENE
