@@ -1,0 +1,1 @@
+ARTICULO 3º): Se entiende por hecho imponible a todo acto, operación o situación establecidos en la presente Ordenanza y en otras ordenanzas especiales, en virtud de los cuales se determina el nacimiento de la obligación tributaria.-

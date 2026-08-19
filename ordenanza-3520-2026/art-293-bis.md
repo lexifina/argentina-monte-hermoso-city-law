@@ -1,0 +1,2 @@
+ARTICULO 293° BIS): A los efectos de determinación del monto a tributar en concepto de Tasa por Servicios Sanitarios correspondiente al Ejercicio Fiscal 2026, se procederá a la aplicación al importe vigente de este gravamen durante el Ejercicio Fiscal 2025 de un factor de adecuación de carácter tributario que establezca la Ordenanza Impositiva en su Capítulo XIX.-
+DE LOS CONTRIBUYENTES Y RESPONSABLES

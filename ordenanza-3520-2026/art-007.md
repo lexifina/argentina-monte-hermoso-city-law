@@ -1,0 +1,6 @@
+ARTICULO 7º): Son contribuyentes quienes verifiquen a su respecto el hecho imponible que les atribuyen las normas tributarias, reuniendo la calidad de deudor a título propio. Sin prejuicio de lo que establezcan las normas específicas, podrán serlo:
+Las personas humanas, conforme el Código Civil y Comercial de la Nación;
+Las personas jurídicas del Código Civil y las sociedades, asociaciones y entidades a las que el derecho privado reconoce la calidad de sujetos de derechos;
+Las sociedades, asociaciones, entidades y empresas que no tengan las calidades previstas en el inciso anterior, y aun los patrimonios destinados a un fin determinado, cuando unas y otras sean consideradas por las leyes tributarias como unidades económicas para la atribución del hecho imponible;
+Las sucesiones indivisas, cuando las leyes tributarias las consideren como sujetos para la atribución del hecho imponible, en las condiciones previstas en la ley respectiva;
+Otros entes que, aun cuando no revistan el carácter de sujetos de derecho de conformidad a la legislación de fondo, que realicen actos, operaciones o se encuentren en situaciones que esta Ordenanza, u otras ordenanzas especiales, consideren como hechos imponibles.-
