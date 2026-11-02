@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-monte-hermoso",
+  "code": "AR-B-MONTE-HERMOSO",
+  "name": "Monte Hermoso",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-monte-hermoso-city-law",
+  "build": "built: municipal ordinances (203 ordinances, 203 versions) from https://sibom.slyt.gba.gob.ar/cities/85",
+  "language": "es",
+  "sources": 1
+}
